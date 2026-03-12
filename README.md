@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MATG810212HGRYMR14
+MATG810212HGRYMR14
